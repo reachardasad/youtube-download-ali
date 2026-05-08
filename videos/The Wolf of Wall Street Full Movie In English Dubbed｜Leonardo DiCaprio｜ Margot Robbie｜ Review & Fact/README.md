@@ -1,0 +1,45 @@
+# The Wolf of Wall Street Full Movie In English Dubbed|Leonardo DiCaprio| Margot Robbie| Review & Fact
+
+---
+
+## اطلاعات ویدیو
+
+| مشخصه | مقدار |
+|--------|-------|
+| **نام ویدیو** | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact` |
+| **لینک اصلی** | [ویدیوی یوتیوب](https://www.youtube.com/watch?v=Cs7MOWwLBvU) |
+| **حجم کل** | **16 بخش** - **1431.25 مگابایت** |
+| **کیفیت** | **480** |
+| **وضعیت** | **کامل (۱۰۰%)** |
+| **رمز عبور** | **ندارد** |
+
+---
+
+## لینک‌های دانلود
+
+| # | فایل | لینک |
+|---|------|------|
+| 1 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z01` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z01) |
+| 2 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z02` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z02) |
+| 3 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z03` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z03) |
+| 4 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z04` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z04) |
+| 5 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z05` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z05) |
+| 6 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z06` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z06) |
+| 7 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z07` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z07) |
+| 8 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z08` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z08) |
+| 9 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z09` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z09) |
+| 10 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z10` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z10) |
+| 11 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z11` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z11) |
+| 12 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z12` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z12) |
+| 13 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z13` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z13) |
+| 14 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z14` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z14) |
+| 15 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.z15` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.z15) |
+| 16 | `The Wolf of Wall Street Full Movie In English Dubbed｜Leonardo DiCaprio｜ Margot Robbie｜ Review & Fact.zip` | [دانلود](https://github.com/reachardasad/youtube-download-ali/raw/main/videos/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact/The%20Wolf%20of%20Wall%20Street%20Full%20Movie%20In%20English%20Dubbed%EF%BD%9CLeonardo%20DiCaprio%EF%BD%9C%20Margot%20Robbie%EF%BD%9C%20Review%20%26%20Fact.zip) |
+
+---
+
+## نحوه استخراج
+
+۱. **دانلود** همه فایل‌های `.zip` و `.z01`، `.z02`...
+۲. **استخراج** با استفاده از [7-Zip](https://www.7-zip.org/) یا [WinRAR](https://www.rarlab.com/)
+۳. فایل `.zip` را باز کنید — تمام بخش‌ها به صورت خودکار ترکیب می‌شوند
